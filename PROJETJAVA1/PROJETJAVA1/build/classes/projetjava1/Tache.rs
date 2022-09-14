@@ -1,0 +1,12 @@
+Tache$6
+Tache$5
+Tache$8
+Tache$7
+Tache$2
+Tache$1
+Tache$4
+Tache$10
+Tache$3
+Tache$11
+Tache$9
+Tache
